@@ -14,6 +14,6 @@ But I thought 'Nah, forget it, yo, holmes to Bel Air'
 
 I pulled up to the house about seven or eight
 And it yelled to the cabbie 'Yo holmes, smell ya later'
-I looked at my kindom
+I looked at my kingdom
 I was finally there, 
 To sit on my throne as the prince of Bel-Air
